@@ -1,2 +1,2 @@
 # Love.Cihtong.Junior
-Love.Cihtong.Junior
+告白刺中
